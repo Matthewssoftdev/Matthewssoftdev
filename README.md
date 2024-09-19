@@ -5,4 +5,4 @@ The DO All in ONE system.
 📫 Reach me via GitHub collaborators.
 🫥 name pronunciation:[Matthew Ronnie]  Pronounced as [MATTH yoo]or [MATTH yu](with the emphasis on the first syllable
 Ronnie  Pronounced: as [RAH nee] (with a short "Aw" sound and the emphasis on the first syllable).
-⚡ Fun fact: Technology is crazy
+⚡ Fun fact: with modern tech anything is a possibility
